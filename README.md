@@ -1,16 +1,62 @@
-## Hi there 👋
+  ˏˋ°•*⁀➷ 𝒱𝒾𝓁𝓁𝒶𝒾𝓃 𝒶𝓃𝒹 𝒱𝒾𝑜𝓁𝑒𝓃𝓉..
+<p align="center">
+︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
+</p>
 
-<!--
-**Jaybird-IRL/Jaybird-IRL** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="left">
+  <img width="300" height="409" src="https://github.com/user-attachments/assets/f485a38b-26f1-4eee-9bb3-cb8e870bc9cd">
+</p>
 
-Here are some ideas to get you started:
+. . . ╰──╮ ᴍᴀʏᴀ 🌕 ᴊᴀʏʙɪʀᴅ ╭──╯ . . .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+*ೃ༄ INTP
+
+-ˋˏ ༻✩༺ ˎˊ-
+
+ᴄᴜᴅᴅʟᴇꜱ ᴀɴᴅ ʜɪᴅɪɴɢ ɪꜱ ᴡᴇʟᴄᴏᴍᴇᴅ ᴇᴠᴇɴ ɪꜰ ɪᴛ ɪꜱɴ'ᴛ ɪɴ ᴍʏ ɴᴀᴍᴇ!
+
+ꜰᴇᴇʟ ꜰʀᴇᴇ ᴛᴏ ɪɴᴛᴇʀᴀᴄᴛ, ɪ ᴅᴏɴ'ᴛ ʙɪᴛᴇ ^^
+
+-ˋˏ ༻✩༺ ˎˊ-
+
+ᴄᴏᴍꜰᴏʀᴛ ᴄʜᴀʀᴀᴄᴛᴇʀꜱ: ʙᴏʙ ʀᴇʏɴᴏʟᴅꜱ, ʀᴏʙᴇʀᴛ 'ʙᴏʙ' ꜰʟᴏʏᴅ, ᴊᴀꜱᴏɴ ᴛᴏᴅᴅ, ʀʜᴇᴛᴛ ᴀʙʙᴏᴛᴛ, ʏᴇʟᴇɴᴀ ʙᴇʟᴏᴠᴀ
+
+୨⎯ "ꜰᴀɴᴅᴏᴍꜱ ɪ'ᴍ ɪɴ" ⎯୧
+
+ᴅᴄ
+
+ᴍᴀʀᴠᴇʟ
+
+ᴘᴏᴋᴇᴍᴏɴ
+
+ᴏᴜᴛᴇʀ ʀᴀɴɢᴇ
+
+ᴛʜᴇ ʙᴏʏꜱ
+
+ɪɴᴠɪɴᴄɪʙʟᴇ
+
+ᴛᴏᴘ ɢᴜɴ
+
+ᴄᴏᴏᴋɪᴇ ʀᴜɴ: ᴋɪɴɢᴅᴏᴍ
+
+ᴊᴜᴊᴜᴛꜱᴜ ᴋᴀɪꜱᴇɴ
+
+ᴜɴɪᴋɪᴛᴛʏ
+
+ᴍᴏᴜᴛʜᴡᴀꜱʜɪɴɢ
+
+ᴡᴀʏɴᴇ
+
+ᴀʟɪᴄᴇ ɪɴ ʙᴏʀᴅᴇʀʟᴀɴᴅ
+
+ʙᴇᴀꜱᴛᴀʀꜱ
+
+ʀᴇɢʀᴇᴛᴇᴠᴀᴛᴏʀ
+
+ꜱᴛʀᴀɴɢᴇʀ ᴛʜɪɴɢꜱ
+
+ꜰʀᴀɴ ʙᴏᴡ
+
+ꜰɪᴠᴇ ɴɪɢʜᴛꜱ ᴀᴛ ꜰʀᴇᴅᴅʏ'ꜱ
+
+-ˋˏ ༻✩༺ ˎˊ-
