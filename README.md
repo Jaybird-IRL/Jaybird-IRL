@@ -20,13 +20,12 @@ WIP EVERYTHING WIP
   
 ![](https://komarev.com/ghpvc/?username=Jaybird-IRL&label=🐚%20&base=2745&color=5A7EA5&)
 
+
+ੈ✩‧₊˚ ᴍʏ ʙʀᴏᴛʜᴇʀ [ꜱᴇʙᴀꜱᴛɪᴀɴ.ᐟ](https://github.com/sudophen) ᴊᴜꜱᴛ ᴀɴᴏᴛʜᴇʀ ᴍᴇ ༊*·˚
+
 <br>
 
-ੈ✩‧₊˚ ꜱʜᴏᴜᴛᴏᴜᴛ ᴛᴏ ᴍʏ ʙʀᴏᴛʜᴇʀ [ꜱᴇʙᴀꜱᴛɪᴀɴ.ᐟ](https://github.com/sudophen) ༊*·˚
-
-<br>
-
-
+something...
 
 <br> <br>
 
